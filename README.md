@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 aspiring cybersecurity specialist<br>looking to collobarte with any IT sector services<br>currently studying on  malware <br>can get  you  normal bugs or reports in your website<br>random fact - i workout and learn simulataneously
 
 
